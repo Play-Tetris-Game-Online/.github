@@ -4,6 +4,8 @@
 
 Are you ready for an **epic puzzle challenge**? Dive into **Tetris Online**, where retro fun meets **insane speed**, **lightning-fast thinking**, and **unstoppable** strategy! Whether you're a **classic gamer** or a new challenger, this **HD online puzzle experience** will keep you hooked from the first falling block.
 
+## <a href="https://1kb.link/GCyVoF">👉 Play Tetris Unblocked Online NOW 👈</a>
+
 ### 🚀 **Why Tetris Online is More Addictive Than Ever**
 
 * 🔥 **Blazing Gameplay**: With faster drops and turbo mode, you’ll need rapid reflexes to survive.
